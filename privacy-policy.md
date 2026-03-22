@@ -49,4 +49,4 @@ We may update this Privacy Policy. Changes will be reflected on this page.
 ## Contact
 
 For questions, contact:
-[Your Email Here]
+info@oszo-tech-llc.com
